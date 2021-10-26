@@ -8,6 +8,7 @@
 - 🥅 2021 Goals: Contribute more to Open Source projects
 - 🐶 🐱 I'm currently working on creating a shelter for animals.
 - ⚡ Fun fact: I love to garden.
+- "Perfection is not attainable, but if we chase perfection we can catch excellence." Vince Lombardi
 
 ### Connect with me:
 
