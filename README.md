@@ -5,7 +5,7 @@
 ## I'm a Husband, Developer, and Pet Lover!!
 
 - 🌱 I’m currently learning everything 🤣
-- 🥅 2021 Goals: Contribute more to Open Source projects
+- 🥅 2022 Goals: Contribute more to Open Source projects
 - 🐶 🐱 I'm currently working on creating a shelter for animals.
 - ⚡ Fun fact: I love to garden.
 - "Perfection is not attainable, but if we chase perfection we can catch excellence." Vince Lombardi
